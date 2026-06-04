@@ -1,4 +1,4 @@
-#  
+#  top jujutsu shenanigans Scripts offers the most advanced jujutsu shenanigans Script, with auto-farm and no cooldown. Perfect for dominating any match.
 
 
 
